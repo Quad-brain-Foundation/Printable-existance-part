@@ -1,2 +1,3 @@
 # Printable-existance-part
-For  everlasting
+For  everlasting  life
+and printing  the  self-body  parts  and  regeneration.
